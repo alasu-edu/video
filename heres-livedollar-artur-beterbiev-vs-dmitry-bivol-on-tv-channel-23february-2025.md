@@ -1,4 +1,4 @@
-@ [WATCHLIVE]FIGHT] Artur Beterbiev vs Dmitry Bivol LIVE 𝐒𝐭𝐫𝐞𝐚𝐦𝐬 Free On TV Channel 23 February 2025
+# @ [WATCHLIVE]FIGHT] Artur Beterbiev vs Dmitry Bivol LIVE 𝐒𝐭𝐫𝐞𝐚𝐦𝐬 Free On TV Channel 23 February 2025
 Beterbiev vs Bivol 2 live stream: How to watch boxing online today – start time, TV channel, full fight card. Artur Beterbiev vs Dmitry Bivol 2 – aka The Last Crescendo – for the undisputed world light heavyweight title isn't only one of the best pound-for-pound fights of 2025, it's got arguably the highest-quality card this century. Beterbiev won a razor-thin decision when these two met in October, as Bivol seeks revenge
 
 The epic rematch in the light heavyweight division is ready to get underway. Artur Beterbiev and Dmitry Bivol are back in Saudi Arabia to slug it out for the undisputed crown at 175 pounds just four months after their epic first meeting.
